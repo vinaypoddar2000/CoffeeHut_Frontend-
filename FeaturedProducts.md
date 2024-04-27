@@ -9,3 +9,4 @@
 • Gourmet snacks like pastries, cookies, and biscotti
 • Coffee gift sets and subscription boxes
 • Merchandise like branded apparel and reusable tumblers
+• 10% discount on the listed products new
